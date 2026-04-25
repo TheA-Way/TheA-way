@@ -33,7 +33,7 @@ When I'm not building something I'm probably watching anime, reading comics, or 
 
 ## 🎌 Currently Watching
 
-- 📺 Nijiiro Days
+- 📺 Nothing
 
 ## 🎮 Playing
 
@@ -41,7 +41,7 @@ When I'm not building something I'm probably watching anime, reading comics, or 
 
 ## 📖 Reading
 
-- 📚 Jakdu: Shaman's Blade
+- 📚 Fogland
 
 ## 🎵 Listening To
 
